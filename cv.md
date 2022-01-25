@@ -1,4 +1,4 @@
-# Венер Шайганов
+# Vener Shayganov
 
 ## Contacts
  - E-mail: venershayganov@gmail.com
